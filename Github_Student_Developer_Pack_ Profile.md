@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Harshan-Sarkar
+- 👀 I’m interested in Data Science
+- 🌱 I’m currently learning Secondary Studies
+- 💞️ I’m looking to collaborate on Hackathons and other Big programs
+- 📫 How to reach me G-mail : harshansarkar@gmal.com ; Phone no. : +91 90930 99886 ; Discord : Harshan Sarkar#3502
